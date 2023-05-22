@@ -4,32 +4,24 @@
 
 
 
-\n
-\n
-\n
+For People
 
 
 
 ![alt text](https://github.com/Hash-n-Slash/PACKITUP/blob/main/1.png?raw=true)
 
 
-\n
-\n
-\n
+For Driver
 
 
 ![alt text](https://github.com/Hash-n-Slash/PACKITUP/blob/main/2.png?raw=true)
 
 
-\n
-\n
-\n
+Our Aim
 
 
 ![alt text](https://github.com/Hash-n-Slash/PACKITUP/blob/main/3.png?raw=true)
 
-\n
-\n
-\n
+
 
 
